@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @menganiajay
-- 👀 I’m interested in Design and Development
+- 👀 Design and Development
 - 📫 Reach me menganiajay17@gmail.com
 
 <!---
